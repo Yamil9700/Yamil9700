@@ -1,5 +1,5 @@
   - 👋 Hi, I’m @Yamil9700 
-- 👀 I’m interested in ... la computacion, deportes y juehos MOBA      
+- 👀 I’m interested in ... computacion, deportes y juehos MOBA      
 - 🌱 I’m currently learning .  ..progracion    
 - 💞️ I’m looking to collaborate on ... henry`s                                             
 - 📫 How to reach me  via email yamilamato@gmail.com
